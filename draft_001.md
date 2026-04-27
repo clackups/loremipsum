@@ -1,10 +1,5 @@
-Ніч... а човен -- як срібний птах!...
-(Що слова, коли серце повне!)
-... не спіши, не лети по сяйих Світах,
-Мій малий ненадийний човне!
+But you were never good with horses, are you, my dear?
+Always took a step backwards when they came near.
 
-І над нами, й під нами горять світи...
-І внизу, і вгорі глибини...
-О, який же прекрасний ти, 
-Світе єдиний!
 
+hello world! j,hgjkjgh jjhghjhj   hjghjg jhglkj klkjh kjh jh jhkjhj  j jh hjik j jj  j j hj wqp
